@@ -1,0 +1,2 @@
+# fire
+CS 1.6 FPS CFG,CS 1.6 STEAM WH,
